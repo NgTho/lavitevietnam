@@ -1,2 +1,0 @@
-# lavitevietnam
-lavitevietnam.vn
